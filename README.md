@@ -1,4 +1,4 @@
-### gojo memorial page :(
+### gojo memorial page 
 
 at bakit hindi sya namatay
 
