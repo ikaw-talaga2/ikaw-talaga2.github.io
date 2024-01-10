@@ -11,3 +11,6 @@ at theory na hindi sya namatay
 - reversed cursed technique comes from the head and not from the stomach (as opposed to cursed energy)
 - pogi sya
 - di ko pa nag recover sa death nya
+- mas pogi man si higuruma
+
+![](https://preview.redd.it/jkayxpcqxup71.png?width=1720&format=png&auto=webp&s=189711e5bb61fa370750312377a15f1431c33e4a)
